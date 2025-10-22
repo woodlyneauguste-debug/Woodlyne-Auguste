@@ -1,2 +1,2 @@
 # Woodlyne-Auguste
-Conseillère en negociations commerciales
+Conseillère en negociation commerciale
